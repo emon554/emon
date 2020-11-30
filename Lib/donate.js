@@ -9,12 +9,12 @@ Mau donasi? ✨
 
 ♻ Silahkan donasi dibawah ini :
    
-⚜ *OVO*: 081329896085
-⚜ *#DANA*: 081329896085
-⚜ *#BANK*: 081329896085
-⚜ *#PULSA*: 081329896085
-⚜ *#GOPAY*: 081329896085
-⚜ *#SAWERIA*: https://saweria.co/donate/bintangnurpradana
+⚜ *OVO*: 083180307056
+⚜ *#DANA*: 083180307056
+⚜ *#BANK*: 083180307056
+⚜ *#PULSA*: 083180307056
+⚜ *#GOPAY*: 083180307056
+⚜ *#SAWERIA*:Coming soon
 
 📺 *Iklan* :
 
